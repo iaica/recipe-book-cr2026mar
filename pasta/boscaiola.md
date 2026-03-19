@@ -12,4 +12,6 @@
 
 ## Instructions
 
-TODO: these are missing
+- Boil pasta in a large pot of of well-salted water.
+- Roast mushrooms, sauté onions, add pancetta and onions.
+- Toss all together, and enjoy
